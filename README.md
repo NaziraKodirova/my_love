@@ -1,1 +1,1 @@
-[my_love.com](http//mylove.com)
+[mylove.com](http//mylove.com)
